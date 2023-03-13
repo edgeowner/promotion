@@ -1,0 +1,2 @@
+# promotion
+秒杀
